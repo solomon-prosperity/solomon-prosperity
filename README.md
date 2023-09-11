@@ -1,5 +1,4 @@
-<a href="http://eddiejaoude.io" target="_blank"><img src="![image](https://github.com/solomon-prosperity/solomon-prosperity/assets/85228539/3d9479ea-c0ed-4e34-80a8-c349b6d746fe)
-" /></a>
+<a href="http://eddiejaoude.io" target="_blank"><img src="https://media.licdn.com/dms/image/C4E16AQEy-fiJ3wlF3A/profile-displaybackgroundimage-shrink_350_1400/0/1628266679655?e=1700092800&v=beta&t=xt-TohQQJIm1wUro9IZAm9nkiMj3oBbM4HzJydTnH70" /></a>
 
 
 ### Hi there 👋 I'm Prosper I. Eravwuvieke
